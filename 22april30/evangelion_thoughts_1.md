@@ -163,8 +163,7 @@ If you wanted a normal ending where everyone grows up and nothing bad or confusi
 
 If 25 and 26 were too confusing, and not enough robots, fuck you, you get *End of Evangelion*. Everyone dies (sort of), and no one gets a straightforward happy ending.
 
-If you're tired of Shinji not getting in the god dammed robot after 20 something years, you have the third *Rebuild* movie which has Shinji excited to enter the robot once again, which, spoiler alert,
->! shows Shinji deciding that he can solve problems by embracing getting in the robot, which nearly triggers the apocalypse *yet again*, and leaves him practically responsible for the death of Kaworu. This is a step up from the anime run, where 
+If you're tired of Shinji not getting in the god dammed robot after 20 something years, you have the third *Rebuild* movie which has Shinji finally excited to enter the robot, convinced of its capability for solutions, even if he needs to bash his co-workers in the process, nearly triggering the apocalypse *yet again*, and leaves him directly responsible for the death of Kaworu, as opposed to incidentally responsible. 
 
 If you were super invested in the navel-gazing parts of *Eva* that were so sure of how smart of an anime it was, and how you're smart for enjoying difficult media like *Eva* (you also like to tell your dates that you listen to Gerogerigegege and try to have sex to the sound of Death Grips), *Rebuild* won't flatter your big folded wrinkled brain. It's popcorn theater. Grow up dude, just be normal for once in your life.
 
