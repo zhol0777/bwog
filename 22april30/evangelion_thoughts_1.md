@@ -98,6 +98,8 @@ Simultaneously, it's impossible to claim that the movie was phoned in. Maybe it'
 ![eye see](img/eye.png)
 Pictured: Holy shit, dude.
 
+![vibing](img/vibing.jpg)
+
 You start to realize that while Episode 25 and 26 was maybe the happy ending, and you have traded a mysterious happiness for unambiguous pain; do you realize this when Asuka gets psychically stabbed through her entire face? Is it when Shinji sees Rei's rotting face twisted out of the flesh of a Mass-Production Evangelion? Is it when Rei commits planetary annihilation of the human race? Taking an explicit straightforward ending highway takes us straight to discomfortville, where we're left to contend with a few questions that I'm too lazy to dig into further - what does this say about Shinji dealing with his own depression? By choosing living on Earth, has he grown as a person? Would you reject Instrumentality? Do you think that the pain of living accentuates pleasurable moments?
 All I can say is that the end shows Shinji deciding to live a life outside Instrumentality, where he accepts the barriers and boundaries between him and other people, while 25 and 26 imply accepting Instrumentality to fill in the gaps in his own person. This is the fundamental distinction between 25 and 26 and *End of Eva*, and that's the big takeaway for what I think the viewer should consider Instrumentality as being. Even when forced to show his work and take some of the mystery out, you're still left with some aftertaste that'll roll around in the tongue of your mind for a while; I'm still talking about it here.
 
