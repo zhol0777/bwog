@@ -124,7 +124,7 @@ This is what happens in Rebuild 3.0.
 
 In conclusion, antagonizing viewers worse expectations always makes a more interesting plot.
 
-Ok, this is a tremendous under-explanation of *Rebuild 3.0*,
+Ok, this is a tremendous under-explanation of *Rebuild 3.0*, but this *big idea* is special to me. The *Rebuild* series exists mostly to make viewers happy, to give them something they can watch that isn't too confusing so they don't have to think or post much about it afterwards, but this is different! This shows a stubborn old man still willing to flip the script on the viewer! It wouldn't be *Eva* without Kaworu being doomed, and it doesn't re-tread his doomed end in the original TV series. It's even more heartbreaking for Shinji, whereas in the original TV series he's forced to end Kaworu's life due to stop something Kaworu was going to do, *3.0* frames Kaworu's death as a consequence of Shinji's overconfidence. There's a cold difference between "Kaworu had to die to save humanity, and it is of consequence alone that I had to end his life" and "Kaworu had to die to protect me from something I did". It's an immense responsibility for his death that crushes Shinji for so long afterwards. There's something to be said about how we're getting the other side of the coin, where your premature optimism and overconfidence can hose you over as much as your inability to take action, but I'm too tired to get there. I'm supposed to be watching *Jackass Forever* right now and need to leave.
 
 ## one last final
 
